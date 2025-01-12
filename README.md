@@ -4,4 +4,5 @@
 - 📫 How to reach me chandrashekar93802003@gmail.com
 - 😄 Passionate traveler with a keen interest in exploring New Places
 
-![Untitled design (1)](https://github.com/user-attachments/assets/c1e4af17-8976-4dfa-976c-9322537f0c47)
+![Untitled design](https://github.com/user-attachments/assets/3694d537-9be8-4d6e-99e0-c5b97b7bebbd)
+
